@@ -1,0 +1,3 @@
+# I-m-too-old-for-thsi...
+Retired, learning this as a hobby and to keep my brain going. baby steps but enjoying the process.
+I expect im only on git hub because it was another challenge to try out.
